@@ -9,5 +9,7 @@ I am software engenieer and I am still learning software development, I would li
 I'd like to be part of any project to allow me to grow up. so let me know if there is something that I can help you.
 Currently, I am developer at Great Mexico Company and also I have been working in several projects from EU. 
 
+You can reach out to me with my email davidrosas0192@gmail.com
+
 Regards 
 
